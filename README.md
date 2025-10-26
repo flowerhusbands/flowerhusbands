@@ -10,4 +10,5 @@ Also I dont like to cover people so please if you wanna sit with me dont be afra
 
 
 <sub><small>Did you know I like flowerhusbands?? </small></sub> <br>
-[Profile view counter on GitHub](https://komarev.com/ghpvc/?username=flowerhusbands)
+
+![](https://komarev.com/ghpvc/?username=flowerhusbands&color=red)
