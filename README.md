@@ -12,7 +12,7 @@ Another thing I should probably add is im not the best at keeping up conversatio
 
 [you should totally read my strawpage ¬`‸´¬ pls..](https://zeepzap.straw.page)</br>
 
-<img width="900" height="510" alt="Screenshot 2025-10-25 164510" src="https://github.com/user-attachments/assets/f1cd8ee7-774c-44d9-824e-873bd3c58f77" />
+<img width="870" height="501" alt="Screenshot 2025-10-25 164510" src="https://github.com/user-attachments/assets/f1cd8ee7-774c-44d9-824e-873bd3c58f77" />
 
 
 <sub><small>Did you know I like flowerhusbands?? </small></sub> <br>
