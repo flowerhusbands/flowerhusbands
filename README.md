@@ -4,7 +4,7 @@ Hiya ˶ᵔ ᵕ ᵔ˶ I go by Zee or Zia but really any name is  fine cause I don
 
 I dont have an age DNI list so as long as youre not a creep feel free to interact and talk to me ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧</br>
 
-I am never on DNIUF, DNI, DNIUID, or anything like that, however, I only have one screen and often offtab, sometimes Im dumb and forget to put it in my name too.. so if you wanna talk but dont know if im offtab or not please whisper and Ill answer as soon as I can :D !! Im always up for a chat or any sort of interaction so really !! dont be afraid to sit or chat with meeee ^^ </br>
+I am never on DNIUF, DNI, DNIUID, or anything like that, however, I only have one screen and im often offtab, sometimes Im dumb and forget to put it in my name too.. so if you wanna talk but dont know if im offtab or not please whisper and Ill answer as soon as I can :D !! Im always up for a chat or any sort of interaction so really !! dont be afraid to sit or chat with meeee ^^ </br>
 
 Also I dont like to cover people so please if you wanna sit with me dont be afraid to cover me :D </br>
 
