@@ -16,7 +16,7 @@ Im a bit unsocial at times, its something ive been hoping to change.. <br>
 depending on the person and mood I might not be as open to interact <br>
 especially when its in a big group of people.. so if I dont talk., dont take it to heart<br>
 Often, this also means im not great at keeping up friendships, <br>
-So if I dont interact I do apologise.., I tend overthink things a lot so its just easier if I dont interact<br>
+Again, I do apologise.., I tend overthink things a lot so its just easier if I dont interact<br>
 
 Feel free to interact first tho !! I dont bite :P ^^ promise..<br>
 
@@ -40,6 +40,6 @@ Feel free to interact first tho !! I dont bite :P ^^ promise..<br>
 
 ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=red&label=poppies..)
 
-<img width="700" height="175" alt="Untitled_design__4_-removebg-preview" src="https://github.com/user-attachments/assets/31192f14-b053-48a9-82ce-669c207fe54e" />
+<img width="770" height="175" alt="Untitled_design__4_-removebg-preview" src="https://github.com/user-attachments/assets/31192f14-b053-48a9-82ce-669c207fe54e" />
 
 
