@@ -36,7 +36,7 @@ Feel free to interact first tho !! I dont bite :P ^^ promise..<br>
 
 
 
-<sub><small>Did you know I like flowerhusbands?? </small></sub> <br>
+<sub><small>Did you know I like flowerhusbands?? all art by applestruda on tumblr btw ^^ </small></sub> <br>
 
 ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=red&label=poppies..)
 
