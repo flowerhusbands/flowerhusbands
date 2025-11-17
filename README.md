@@ -6,17 +6,17 @@
 ### INFO + BYI
 <sub>this is basically just a summary of my strawpage which you should.. totally go read :c </sub><br>
 
-HIIII I go by Zee or Zia ^^ any name is fine., <br>
-you can even make your own name !! <br>
-as long as I know that you're addressing me then any name works!<br>
+HIIII I go by Zee or Zia ^^ any name is perfectly fine., <br>
+you can even make your own name if you'd like !! <br>
+as long as I know that you're addressing me then any name works !!<br>
 
-I use she/they pronouns :D.. Again, I dont mind which you use ^^<br>
+I use she/they pronouns :D.. again, I really dont mind which you use ^^<br>
  
-Im a bit unsocial at times, its a problem ive been working on.. <br>
-depending on the person I might not be as open to interact <br>
-especially when its in a big group of people..<br>
-Often, this means im not great at keeping up friendships, <br>
-So if I dont interact I do apologise.., I overthink things a lot..,<br>
+Im a bit unsocial at times, its something ive been hoping to change.. <br>
+depending on the person and mood I might not be as open to interact <br>
+especially when its in a big group of people.. so if I dont talk., dont take it to heart<br>
+Often, this also means im not great at keeping up friendships, <br>
+So if I dont interact I do apologise.., I tend overthink things a lot so its just easier if I dont interact<br>
 
 Feel free to interact first tho !! I dont bite :P ^^ promise..<br>
 
