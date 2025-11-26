@@ -19,7 +19,7 @@ Often, this also means im not great at keeping up friendships, <br>
 Again, I do apologise.., I tend overthink things a lot so its just easier if I dont interact<br>
 Despite this I love listening to people and love when others interact !! <br>
 
-So feel free to interact first tho !! I dont bite :P ^^ promise..<br>
+So feel free to interact first !! I dont bite :P ^^ promise..<br>
 
 <br clear="left"/>
 
