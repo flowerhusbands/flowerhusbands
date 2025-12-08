@@ -13,13 +13,13 @@ as long as I know that you're addressing me then any name works !!<br>
 I use she/they pronouns :D.. again, I really dont mind which you use ^^<br>
  
 Im a bit unsocial at times, its something ive been hoping to change.. <br>
-depending on the person and mood I might not be as open to interact <br>
+depending on the person and mood I might not be as open to interact first.., or at all <br>
 especially when its in a big group of people.. so if I dont talk., dont take it to heart<br>
 Often, this also means im not great at keeping up friendships, <br>
 Again, I do apologise.., I tend overthink things a lot so its just easier if I dont interact<br>
-Despite this I love listening to people and love when others interact !! <br>
+Despite this I love listening to people and love when others interact first !! <br>
 
-So feel free to interact first !! I dont bite :P ^^ promise..<br>
+So please feel free to interact first !! I dont bite :P ^^ promise..<br>
 
 <br clear="left"/>
 
