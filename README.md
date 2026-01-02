@@ -8,7 +8,7 @@
 <br>
 
 <p align="center">
-  <i><a href="https://zeepzap.atabook.org/"> [1] </a></i> <i><a href="https://hemlocke.straw.page"> [2] </a></i> <i><a href="https://en.pronouns.page/@Smajodarity"> [3] </a></i> 
+  <i><a href="https://zeepzap.atabook.org/"> [1] </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> [2] </a></i> <i><a href="https://en.pronouns.page/@Smajodarity"> [3] </a></i> 
 </p>
 
 <p align="center">
