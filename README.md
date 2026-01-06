@@ -1,8 +1,9 @@
 <p align="center">
- <img width="624" height="400" alt="Screenshot_2025-12-20_190858-removebg-preview (1)" src="https://github.com/user-attachments/assets/79d3e1a3-e07b-49e7-8372-e0914051cd59" />
+<img width="624" height="400" alt="WhatsApp_Image_2025-12-20_at_19 40 07-removebg-preview" src="https://github.com/user-attachments/assets/3d68b4dc-3688-48ca-840b-30ccf7c40d30" />
 </p> 
 <p align="center">
 "𝒷𝓊𝓉 𝓂𝑒 𝒶𝓃𝒹 𝓂𝓎 𝒽𝓊𝓈𝒷𝒶𝓃𝒹, <br>
+
 𝓌𝑒'𝓇𝑒 𝒹𝑜𝒾𝓃𝑔 𝒷𝑒𝓉𝓉𝑒𝓇" <br>
 <br>
 <br>
