@@ -1,11 +1,11 @@
 <p align="center">
-<img width="624" height="400" alt="WhatsApp_Image_2025-12-20_at_19 40 07-removebg-preview" src="https://github.com/user-attachments/assets/3d68b4dc-3688-48ca-840b-30ccf7c40d30" />
+<img width="624" height="400" alt="Untitled_design-removebg-preview" src="https://github.com/user-attachments/assets/2db25c4b-ba85-4e55-8550-80f9e3e6aea1" />
 </p> 
-<br>
 
 <p align="center">
-  "𝒷𝓊𝓉 𝓂𝑒 𝒶𝓃𝒹 𝓂𝓎 𝒽𝓊𝓈𝒷𝒶𝓃𝒹, <br>
-𝓌𝑒'𝓇𝑒 𝒹𝑜𝒾𝓃𝑔 𝒷𝑒𝓉𝓉𝑒𝓇" <br>
+  ᵇᵘᵗ ᵐᵉ ᵃⁿᵈ ᵐʸ ʰᵘˢᵇᵃⁿᵈ,<br>
+  ʷᵉ'ʳᵉ ᵈᵒⁱⁿᵍ ᵇᵉᵗᵗᵉʳ?
+ <br>
 <br>
 
 <p align="center">
