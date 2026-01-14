@@ -1,24 +1,21 @@
-<p align="center">
-<img width="624" height="400" alt="Untitled_design__1_-removebg-preview (1)" src="https://github.com/user-attachments/assets/ed65bf57-3f20-4cb0-8328-104a08822714" />
-</p> 
+<div align="center">
 
+![](GIF_20260113_221405_879.gif)
+<div/>
 <p align="center">
-  ᵇᵘᵗ ᵐᵉ ᵃⁿᵈ ᵐʸ ʰᵘˢᵇᵃⁿᵈ,<br>
-  ʷᵉ'ʳᵉ ᵈᵒⁱⁿᵍ ᵇᵉᵗᵗᵉʳ?
+ᵢt cₒₙtᵢₙᵤₑs fₒᵣₑᵥₑᵣ,<br>
+ᵣₒᵤₙd ₐₙd ᵣₒᵤₙd
  <br>
-<br>
-
 <p align="center">
-  <i><a href="https://thesheriff.atabook.org/"> [1] </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> [2] </a></i> <i><a href="https://en.pronouns.page/@Smajodarity"> [3] </a></i> 
+  <i><a href="https://thesheriff.atabook.org/"> (꩜) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (꩜) </a></i> <i><a href="https://en.pronouns.page/@Smajodarity"> (꩜) </a></i> 
 </p>
 
 <p align="center">
 
-<img width="300" height="265" alt="Screenshot_2025-12-20_213235-removebg-preview" src="https://github.com/user-attachments/assets/2f3a8dc9-1b59-478c-a524-688d2dea92ee" />
- 
+  <img width="260" height="130" alt="Screenshot_2026-01-14_193422-removebg-preview" src="https://github.com/user-attachments/assets/8494b767-99ac-49f8-9617-93992d050aa3" />
 
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=flowerhusbands&color=70798E&label=˚˖𓍢ִ໋❀)
+![](https://komarev.com/ghpvc/?username=flowerhusbands&color=CFCF9E&label=˚˖𓍢ִ໋❀)
 
 </div>
