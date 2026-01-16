@@ -18,4 +18,5 @@
  
 ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=CFCF9E&label=˚˖𓍢ִ໋❀)
 
+<sub> <small> animation by landfalled_called on tiktok ^^ <small/> <sub/>
 </div>
