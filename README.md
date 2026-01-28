@@ -7,7 +7,7 @@
 ᵣₒᵤₙd ₐₙd ᵣₒᵤₙd
  <br>
 <p align="center">
-  <i><a href="https://thesheriff.atabook.org/"> (꩜) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (꩜) </a></i> <i><a href="https://en.pronouns.page/@Smajodarity"> (꩜) </a></i> 
+  <i><a href="https://thesheriff.atabook.org/"> (꩜) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (꩜) </a></i> <i><a href="https://en.pronouns.page/@Pyroscythe"> (꩜) </a></i> 
 </p>
 
 <p align="center">
