@@ -5,7 +5,7 @@
 </p>
  <div align="center">
 
-<img width="500" height="450" alt="Screenshot_2026-02-08_195414-removebg-preview" src="https://github.com/user-attachments/assets/400a1205-83a6-4380-9e02-356fa9be6db0" />
+<img width="530" height="467" alt="Screenshot_2026-02-08_195414-removebg-preview" src="https://github.com/user-attachments/assets/400a1205-83a6-4380-9e02-356fa9be6db0" />
 
 
 $\color{#B87070}{\textsf{˚❀　.　˚　　✦　　✿　.　˚　. 　 ˚　✿.　˚　　❀˚❀　.　˚　　✦　　✿　.　˚　. 　 ˚　✿.　˚　　❀}}$ <br>
