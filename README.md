@@ -17,5 +17,7 @@ $\color{#E1CF7F}{\textsf{ⁱᶜ ⁻ ʰᵘᵏᵒᵐⁱˢ ᵒⁿ ˣ !!}}$
  
 ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=A6BFD2&label=˚˖𓍢ִ໋❀)
 
-<sub> <small>  <small/> <sub/>
+<img width="406" height="232" alt="Screenshot 2026-02-13 164409" src="https://github.com/user-attachments/assets/e242d92b-8163-4c2f-a986-cdca02181765" /> <br>
+<sub> me and twins <3 <sub>
+
 </div>
