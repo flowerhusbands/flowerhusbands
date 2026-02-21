@@ -3,12 +3,11 @@
 </p>
  <div align="center">
 
-
+  $\color{#A6BFD2}{\textsf{ᴬ}}$ $\color{#B87070}{\textsf{ᵖᵒᵖᵖʸ}}$ <br>
+ $\color{#E1CF7F}{\textsf{ᵇˡᵒᵒᵐˢ ⁿᵉᵃʳᵇʸ}}$ <br>
 <img width="613" height="407" alt="Screenshot_2026-02-21_100943-removebg-preview" src="https://github.com/user-attachments/assets/fc619637-da43-4aed-aecb-93819f155891" />
 
 
- $\color{#A6BFD2}{\textsf{ᴬ}}$ $\color{#B87070}{\textsf{ᵖᵒᵖᵖʸ}}$ <br>
- $\color{#E1CF7F}{\textsf{ᵇˡᵒᵒᵐˢ ⁿᵉᵃʳᵇʸ}}$ <br>
 
 
 
@@ -17,7 +16,6 @@
  
 ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=A6BFD2&label=˚˖𓍢ִ໋❀)
 
-$\color{#A6BFD2}{\textsf{ic - xenquai on insta !!}}$ <br>
 
 <img width="406" height="232" alt="Screenshot 2026-02-13 164409" src="https://github.com/user-attachments/assets/e242d92b-8163-4c2f-a986-cdca02181765" /> <br>
 <sub> us <3 <sub>
