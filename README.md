@@ -1,13 +1,12 @@
 <p align="center">
-<i><a href="https://thesheriff.atabook.org/"> (❀) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (✿) </a></i> <i><a href="https://en.pronouns.page/@Pyroscythe"> (❁) </a></i> 
-</p>
- <div align="center">
-
-  $\color{#A6BFD2}{\textsf{ᴬ}}$ $\color{#B87070}{\textsf{ᵖᵒᵖᵖʸ}}$ <br>
- $\color{#E1CF7F}{\textsf{ᵇˡᵒᵒᵐˢ ⁿᵉᵃʳᵇʸ}}$ <br>
-<img width="613" height="407" alt="Screenshot_2026-02-21_100943-removebg-preview" src="https://github.com/user-attachments/assets/fc619637-da43-4aed-aecb-93819f155891" />
+<img width="750" height="300" alt="Screenshot 2026-02-24 174725" src="https://github.com/user-attachments/assets/5acdb06e-93e3-4109-a496-93f5a5f185cf" />
 
 
+
+<p align="center">
+<i><a href="https://thesheriff.atabook.org/"> (❀) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (✿) </a></i> <i><a href="https://en.pronouns.page/@Pyroscythe"> (❁) </a></i> <br>
+<br>
+ $\color{#A6BFD2}{\textsf{The waves hear your call}}$
 
 
 
