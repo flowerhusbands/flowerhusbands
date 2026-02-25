@@ -1,16 +1,17 @@
 <p align="center">
-
-
-<img width="750" height="350" alt="Screenshot 2026-02-25 215031" src="https://github.com/user-attachments/assets/f8fc1cec-b6f5-4151-b5f2-1a99a12d588c" />
-
+<img width="1300" height="300" alt="Screenshot 2026-02-25 215929" src="https://github.com/user-attachments/assets/92d38867-1fbd-471b-913a-0841ee1f50cc" /> <br>
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡
+<br>
+<br>
 <p align="center">
-<i><a href="https://thesheriff.atabook.org/"> (❀) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (✿) </a></i>  <i><a href="https://en.pronouns.page/@Pyroscythe"> (❁) </a></i> <br>
+$\color{#A6BFD2}{\textsf{The ocean}}$ <br>
+ $\color{#A6BFD2}{\textsf{will hear your call}}$ <br>
+ <br>
+ <i><a href="https://thesheriff.atabook.org/"> (❀) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (✿) </a></i>  <i><a href="https://en.pronouns.page/@Pyroscythe"> (❁) </a></i> <br>
 <br>
- $\color{#A6BFD2}{\textsf{Wherever you go,}}$ <br>
- $\color{#DAC49B}{\textsf{flowers will follow}}$
+ 
+<br>
 
-<br>
-<br>
 
 <div align="center">
  
