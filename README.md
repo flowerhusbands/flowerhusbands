@@ -15,7 +15,8 @@ $\color{#A6BFD2}{\textsf{They whispered that she was a monster,}}$ <br>
  
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=flowerhusbands&color=A6BFD2&label=˚˖𓍢ִ໋❀)
+![](https://komarev.com/ghpvc/?username=flowerhusbands&color=A6BFD2&label=𓆉⋆.˚𓇼⋆.)
+<br>
 <br>
 °‧ 𓆝 𓆟 𓆞 ·｡<br>
 <br>
