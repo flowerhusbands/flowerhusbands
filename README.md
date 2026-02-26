@@ -4,8 +4,8 @@
 <br>
 <br>
 <p align="center">
-$\color{#A6BFD2}{\textsf{they whispered that she was a monster whose song brought death,}}$ <br>
- $\color{#A6BFD2}{\textsf{that silence was better than her existence.}}$ <br>
+$\color{#A6BFD2}{\textsf{They whispered that she was a monster,}}$ <br>
+ $\color{#A6BFD2}{\textsf{whose song brought death.}}$ <br>
  <br>
  <i><a href="https://thesheriff.atabook.org/"> (❀) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (✿) </a></i>  <i><a href="https://en.pronouns.page/@Pyroscythe"> (❁) </a></i> <br>
 <br>
