@@ -7,7 +7,7 @@
 $\color{#A6BFD2}{\textsf{They whispered that she was a monster,}}$ <br>
  $\color{#A6BFD2}{\textsf{whose song brought death.}}$ <br>
  <br>
- <i><a href="https://thesheriff.atabook.org/"> (❀) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (✿) </a></i>  <i><a href="https://en.pronouns.page/@Pyroscythe"> (❁) </a></i> <br>
+ <i><a href="https://thesheriff.atabook.org/"> (⚓︎) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (ଳ) </a></i>  <i><a href="https://en.pronouns.page/@Pyroscythe"> (꩜) </a></i> <br>
 <br>
  °‧ 𓆝 𓆟 𓆞 ·｡
 <br>
