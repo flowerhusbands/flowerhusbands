@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=DFB8D3&label=𐦂𖨆𐀪𖠋)
 <br>
 <br>
-![farts](Untitled28_20260531231325.png)
+<img width="470" height="550" alt="Alt text" src="Untitled28_20260531231325.png" />
 
 <div align="center">
  info is wip !!
