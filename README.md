@@ -1,22 +1,9 @@
-<p align="center">
- <img width="850" height="280" alt="Screenshot 2026-04-25 213438" src="https://github.com/user-attachments/assets/d7a1ab87-dd99-4d02-8d88-57087f26299c" /> <br>
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ꒷꒦︶꒷꒦︶ ๋ ࣭ 
-<br>
-<br>
-<p align="center">
-$\color{#904545}{\textsf{Only my warmth,}}$ <br>
- $\color{#904545}{\textsf{can melt your cold heart.}}$ <br>
- <br>
- <i><a href="https://thesheriff.atabook.org/"> (𓌜) </a></i> <i><a href="https://goodbyemydanishsweetheart.straw.page"> (𖦏) </a></i>  <i><a href="https://en.pronouns.page/@Pyroscythe"> (⸸) </a></i> <br>
-<br>
-꒷꒦︶꒷꒦︶ ๋
-<br>
-<br>
 
+wipwipwipwip
 
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=flowerhusbands&color=904545&label=𐦂𖨆𐀪𖠋)
+![](https://komarev.com/ghpvc/?username=flowerhusbands&color=DFB8D3&label=𐦂𖨆𐀪𖠋)
 <br>
 <br>
 ꒷꒦︶꒷꒦︶ ๋<br>
