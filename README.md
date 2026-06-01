@@ -9,12 +9,13 @@
 <img width="470" height="550" alt="Alt text" src="Untitled28_20260531231325.png" />
 <br>
 <br>
-<div align="center">
+ $\color{#eaced2}{\textsf{✮}}$⋆˙ <i><a href="https://illchangeforyou.straw.page/"> ˢᵗʳʷᵖᵍ </a></i>ㅤㅤ $\color{#eaced2}{\textsf{❁}}$ ✿ $\color{#eaced2}{\textsf{❀}}$ ❁ㅤㅤ <i><a href="https://thesheriff.atabook.org/"> 新ᵇᵒᵒᵏ </a></i> <br>
+<br>
+ $\color{#eaced2}{\textsf{ˢⁱˣᵗᵉᵉⁿ}}$ ༘⋆✿ㅤㅤ₊˚┊ $\color{#eaced2}{\textsf{ⁱⁿᶠᵖ ⁴ʷ³}}$ 🌸𝄞 .ᐟ <br>
+‎<br>
+ᵃʳᵗ ᵇʸ ʰᵃⁿⁿⁿˢʰ_ ⁺ ˢʰᵃʳᵒʳᵘᵘ ᵒⁿ ᵗʷᵗ
 ‎
-✮⋆˙ ˢᵗʳʷᵖᵍㅤㅤ❁✿❀❁ㅤㅤ新ᵇᵒᵒᵏ
- <br>
- <br>
-<img width="406" height="232" alt="Screenshot 2026-02-13 164409" src="https://github.com/user-attachments/assets/e242d92b-8163-4c2f-a986-cdca02181765" /> <br>
-<sub> us <3 <sub>
+‎
 
-</div>
+
+
