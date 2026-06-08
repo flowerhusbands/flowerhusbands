@@ -5,7 +5,7 @@
 <br>
 <br>
 .ᛝ   $\color{#a73c60}{\textsf{ᴵ}}$ $\color{#b94f72}{\textsf{ˢᵗᵉᵃˡ}}$ $\color{#ce698a}{\textsf{ᵃ}}$ $\color{#cc748f}{\textsf{ᶠᵉʷ}}$ $\color{#d08199}{\textsf{ᵇʳᵉᵃᵗʰˢ}}$ $\color{#dd94aa}{\textsf{ᶠʳᵒᵐ}}$ $\color{#dda3b5}{\textsf{ᵗʰᵉ}}$ $\color{#e6b5c4}{\textsf{ʷᵒʳˡᵈ}}$ $\color{#ecbecc}{\textsf{ᶠᵒʳ}}$ $\color{#eac7d1}{\textsf{ᵃ ᵐⁱⁿᵘᵗᵉ}}$ ..𓂃 ࣪  ִֶָ🪽 ་༘࿐<br>
-ㅤㅤㅤㅤ—⁠☆ $\color{#cc748f}{\textsf{ᵃⁿᵈ}}$ $\color{#d08199}{\textsf{ᵗʰᵉⁿ}}$ $\color{#dd94aa}{\textsf{ⁱˡˡ}}$ $\color{#dda3b5}{\textsf{ᵇᵉ}}$ $\color{#e6b5c4}{\textsf{ⁿᵒᵗʰⁱⁿᵍ}}$ $\color{#ecbecc}{\textsf{ᶠᵒʳᵉᵛᵉʳ}}$
+ㅤㅤㅤㅤ—⁠☆ $\color{#cc748f}{\textsf{ᵃⁿᵈ}}$ $\color{#d08199}{\textsf{ᵗʰᵉⁿ}}$ $\color{#dd94aa}{\textsf{ⁱˡˡ}}$ $\color{#dda3b5}{\textsf{ᵇᵉ}}$ $\color{#e6b5c4}{\textsf{ⁿᵒᵗʰⁱⁿᵍ}}$ $\color{#eac7d1}{\textsf{ᶠᵒʳᵉᵛᵉʳ}}$
 <br>
 <br>
 <img width="500" height="580" alt="Alt text" src="Untitled31_20260608184952.png" />
