@@ -1,18 +1,19 @@
 <div align="center">
  <img width="520" height="240" alt="Alt text" src="Untitled36_20260608191459.png" />
 
- ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=eaced2&label=ᯓ★)
+ ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=ecd4dc&label=ᯓ★)
 <br>
 <br>
-.ᛝ  $\color{#eaced2}{\textsf{"ᵐᵉ ᵃⁿᵈ ᵐʸ ʰᵘˢᵇᵃⁿᵈ"}}$ ..𓂃 ࣪  ִֶָ🪽 ་༘࿐
+.ᛝ   $\color{#a73c60}{\textsf{ᴵ}}$ $\color{#b94f72}{\textsf{ˢᵗᵉᵃˡ}}$ $\color{#ce698a}{\textsf{ᵃ}}$ $\color{#cc748f}{\textsf{ᶠᵉʷ}}$ $\color{#d08199}{\textsf{ᵇʳᵉᵃᵗʰˢ}}$ $\color{#dd94aa}{\textsf{ᶠʳᵒᵐ}}$ $\color{#dda3b5}{\textsf{ᵗʰᵉ}}$ $\color{#e6b5c4}{\textsf{ʷᵒʳˡᵈ}}$ $\color{#ecbecc}{\textsf{ᶠᵒʳ}}$ $\color{#eac7d1}{\textsf{ᵃ ᵐⁱⁿᵘᵗᵉ}}$ ..𓂃 ࣪  ִֶָ🪽 ་༘࿐<br>
+ㅤㅤㅤㅤ—⁠☆ $\color{#cc748f}{\textsf{ᵃⁿᵈ}}$ $\color{#d08199}{\textsf{ᵗʰᵉⁿ}}$ $\color{#dd94aa}{\textsf{ⁱˡˡ}}$ $\color{#dda3b5}{\textsf{ᵇᵉ}}$ $\color{#e6b5c4}{\textsf{ⁿᵒᵗʰⁱⁿᵍ}}$ $\color{#ecbecc}{\textsf{ᶠᵒʳᵉᵛᵉʳ}}$
 <br>
 <br>
 <img width="500" height="580" alt="Alt text" src="Untitled31_20260608184952.png" />
 <br>
 <br>
- $\color{#eaced2}{\textsf{✮}}$⋆˙ <i><a href="https://illchangeforyou.straw.page/"> ˢᵗʳʷᵖᵍ </a></i>ㅤㅤ $\color{#eaced2}{\textsf{❁}}$ ✿ $\color{#eaced2}{\textsf{❀}}$ ❁ㅤㅤ <i><a href="https://thesheriff.atabook.org/"> 新ᵇᵒᵒᵏ </a></i> <br>
+ $\color{#ecbecc}{\textsf{✮}}$⋆˙ <i><a href="https://illchangeforyou.straw.page/"> ˢᵗʳʷᵖᵍ </a></i>ㅤㅤ $\color{#ecbecc}{\textsf{❁}}$ ✿ $\color{#ecbecc}{\textsf{❀}}$ ❁ㅤㅤ <i><a href="https://thesheriff.atabook.org/"> 新ᵇᵒᵒᵏ </a></i> <br>
 <br>
- $\color{#eaced2}{\textsf{ˢⁱˣᵗᵉᵉⁿ}}$ ༘⋆✿ㅤㅤ₊˚┊ $\color{#eaced2}{\textsf{ⁱⁿᶠᵖ ⁴ʷ³}}$ 🌸𝄞 .ᐟ <br>
+ $\color{#ecbecc}{\textsf{ˢⁱˣᵗᵉᵉⁿ}}$ ༘⋆✿ㅤㅤ₊˚┊ $\color{#ecbecc}{\textsf{ⁱⁿᶠᵖ ⁴ʷ³}}$ 🌸𝄞 .ᐟ <br>
 ‎<br>
 ᵃʳᵗ ᵇʸ ʰᵃⁿⁿⁿˢʰ_ ⁺ ˢʰᵃʳᵒʳᵘᵘ ᵒⁿ ᵗʷᵗ <br>
 ‎ <img width="520" height="240" alt="Alt text" src="Untitled36_20260608191459.png" />
