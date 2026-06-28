@@ -9,7 +9,7 @@
 <img width="500" height="580" alt="Alt text" src="Untitled41_20260620215651.png" />
 <br>
 <br>
- $\color{#B48389}{\textsf{✮}}$⋆˙ <i><a href="https://rentry.co/december26th"> ʳᵉⁿᵗʳʸ </a></i>ㅤㅤ $\color{#B48389}{\textsf{❁}}$ ✿ $\color{#B48389}{\textsf{❀}}$ ❁ㅤㅤ <i><a href="https://thesheriff.atabook.org/"> 新ᵇᵒᵒᵏ </a></i> <br>
+ $\color{#B48389}{\textsf{✮}}$⋆˙ <i><a href="https://rentry.co/december26th"> ʳᵉⁿᵗʳʸ </a></i>ㅤㅤ $\color{#B48389}{\textsf{❁}}$ ✿ $\color{#B48389}{\textsf{❀}}$ ❁ㅤㅤ <i><a href="https://solidarity.atabook.org/"> 新ᵇᵒᵒᵏ </a></i> <br>
 <br>
  $\color{#B48389}{\textsf{ˢⁱˣᵗᵉᵉⁿ}}$ ༘⋆✿ㅤㅤ₊˚┊ $\color{#B48389}{\textsf{ⁱⁿᶠᵖ ⁴ʷ³}}$ 🐚𝄞 .ᐟ <br>
 ‎<br>
